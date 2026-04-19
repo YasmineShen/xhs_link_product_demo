@@ -4,7 +4,7 @@
 
 ## 1. 产品名称
 
-**Arcana / 灵镜塔罗 / Tonight Tarot**
+**Magic Tarot**
 
 ## 2. 产品一句话定位
 
